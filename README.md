@@ -1,6 +1,6 @@
 # 🏦 2025长桥证券开户最新流程
 
-作者：[胡渣叔](https://cashcow.click/author/keny/) / 2025年9月1日
+转自：[胡渣叔](https://cashcow.click/finance/555/)
 
 ---
 

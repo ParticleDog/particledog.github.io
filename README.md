@@ -1,6 +1,6 @@
 # 🏦 2025长桥证券开户最新流程
 
-转自：[胡渣叔](https://cashcow.click/finance/555/)
+转自：[CashCow](https://cashcow.click/finance/555/)
 
 ---
 
